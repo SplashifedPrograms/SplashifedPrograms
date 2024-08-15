@@ -1,6 +1,6 @@
-- 👋 Hi, I’m Splashifed
-- 👀 I’m interested in making games
-- 🌱 I’m currently learning  Python
+- idk man
+- skibidi
+- nuh uh uh
 
 
 
